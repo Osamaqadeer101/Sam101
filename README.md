@@ -1,2 +1,2 @@
-# Sam101
+# Osamaqadeer101
 Aoa,, I've been working as a Graphics designer &amp; Video Editor from last 9 years. My Designs are full or creativity and Mindfulness, I always provide unique and modern designs according to client's requirements and expectations. Video Editing and Graphic Design is not a just term, it's a skill that can boost your business/organization, and I'm expert in photo and video editing. . I can help you in designing your, Social media content, Youtube Videos, color grading , sync audio with video, adding text to your videos and much more that can be useful to grow your business. I am passionate about this and love doing creative stuff and I'm sure you will love working with me. Your satisfaction will be my highest priority.   Thankyou :-)
